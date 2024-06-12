@@ -1,2 +1,2 @@
-# Hi! I'm Angel 🙊
+# Hi! I'm Chu 🙊
 *more info coming soon.*
